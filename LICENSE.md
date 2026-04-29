@@ -1,4 +1,4 @@
-
+ink game updated Script is the best ink game Script, featuring undetectable and no clip. Safe and powerful for all your needs.
 
 
 
